@@ -2,6 +2,7 @@
 
 meu nome é stefanie, mas todos me conhecem e me chamam de parolin.
 meus hobbies são:
+
 •|pintar as unhas;
 •|cuidar do meu cabelo;
 •|praticar exercícios físicos;
@@ -9,11 +10,14 @@ meus hobbies são:
 •|cozinhar, cuidar da casa e organizar coisas;
 •| desenhar e assistir séries;
 •| brincar com animais.
+•| adoro fazer comprinhas na shein tbm🫠.
 
 Eu sou uma pessoa que quase não sai de casa, então não sou boa em me socializar, mas sou uma pessoa muito hiperativa com meus amigos próximos, creio que sou uma boa amiga.
 Eu sou apaixonada por animais, principalmente por cachorros,pandas e tartarugas. 
+Eu amo doces, principalmente doces de amendoins ou de Oreo. 
 
-# minhas metas são:
+
+# minhas metas de vida são:
  plano A: entrar na enfermagem, fazer acadêmia e aulas de vôlei;
 
  plano B: entrar na BOPE, conseguir uma carreira, e seguir vida solo.
