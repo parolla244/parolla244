@@ -1,6 +1,7 @@
 # olá, bem vindo ao meu perfil 😉
 
 meu nome é stefanie, mas todos me conhecem e me chamam de parolin.
+
 meus hobbies são:
 
 •|pintar as unhas;
@@ -26,7 +27,14 @@ Eu amo doces, principalmente doces de amendoins ou de Oreo.
 
  não pretendo ter filhos e nem marido. Mas se eu encontrar alguém ate la, talvez eu mude de ideia.
 
+eu costumo ser bem estressada e ignorante, mas esse é um jeito meu kkkkk, fora isso eu sou um amorzinho.
+
  # bom, isso foi um pouco sobre mim. Volte sempre👋🏼
  
+
+
+
+![1729223045901719349213452395310](https://github.com/user-attachments/assets/6b3314af-ec99-4d0c-8527-77f9df0140ef)
+
 
 
