@@ -6,12 +6,19 @@ estou no primeiro ano do ensino medio.
 meus hobbies são:
 
 •|pintar as unhas;
+
 •|cuidar do meu cabelo;
+
 •|praticar exercícios físicos;
+
 •|jogar vôlei;
+
 •|cozinhar, cuidar da casa e organizar coisas;
+
 •| desenhar e assistir séries;
+
 •| brincar com animais.
+
 •| adoro fazer comprinhas na shein.
 
 
