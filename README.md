@@ -1,7 +1,6 @@
-# olá, bem vindo ao meu perfil 😉
+# olá, bem vindo ao meu perfil 💆🏼‍♀️
 
-meu nome é stefanie, mas todos me conhecem e me chamam de parolin. Sou estudante do colegio claudio padre moerelli, 
-estou no primeiro ano do ensino medio.
+meu nome é stefanie, mas todos me chamam de ste ou de parolin. Sou estudante do colegio claudio padre moerelli, tenho 16 anos e estou no primeiro ano do ensino médio.
 
 meus hobbies são:
 
@@ -24,14 +23,17 @@ meus hobbies são:
 
 #minhas metas são:
 
-estudar medicina cirurgia;
-ser piloto de formula 1;
-seguir carreira na BOPE.
+A)estudar medicina cirurgia;
 
-eu sou apaixonada por animais, meus favoritos são:
-raia, tartaruga, cachorros e pandas.
+B)ser piloto de formula 1;
 
-Sou viciada em doces tambeḿ.
+C)seguir carreira na BOPE.
+
+meus animais favoritos são:
+baleias azuis, arraias, pandas, 
+tartarugas, cachorros e a pantera negra.
+
+
 
 
 ![1729223045901719349213452395310](https://github.com/user-attachments/assets/6b3314af-ec99-4d0c-8527-77f9df0140ef)
